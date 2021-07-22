@@ -1,0 +1,1 @@
+My biggest motivation is that this is what I wanted to do for a long time. I could not follow it 100% due to my commitment to the military but now that I am a free man I am throughly enjoying the experience and I'm looking forward to follow my dreams of being an Engineer.
